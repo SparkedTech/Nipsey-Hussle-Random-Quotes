@@ -1,1 +1,1 @@
-# Nipsey-Hussle-Random-Quotes
+# Nipsey Hussle Random Quotes
